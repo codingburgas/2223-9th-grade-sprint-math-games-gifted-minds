@@ -1,2 +1,3 @@
-Team Gifted minds
+Team Gifted minds  
+🧠
 <hr>
